@@ -1,0 +1,1 @@
+# BadgeMaster-legal
